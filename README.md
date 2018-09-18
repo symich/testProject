@@ -1,0 +1,2 @@
+ljuboj text
+prodoljaem
